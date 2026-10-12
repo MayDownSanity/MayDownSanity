@@ -29,5 +29,5 @@
 
 ### 🚀 My journey
 - 🏆 **ETH Oxford 2025**
-- 🎮 **2026** – Development manager of SITE-16 (Roblox)
+- 🎮 **2026** – Manager of Development for Infinite Horizon (Roblox)
 - ✨ And soon other things!
